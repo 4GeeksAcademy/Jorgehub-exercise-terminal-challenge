@@ -1,5 +1,5 @@
-Where do you put Vegeta after you kill him? In the Frieza. 
 
+Que hace Krilin cuando va a la peluqueria? hace perder el tiempo al barbero
 What did Beerus say to Goku? Why don't you tell your son to "Gohan" home. 
 
 How many Super Saiyans does it take to change a light bulb? Just one, but it will take him five episodes.
